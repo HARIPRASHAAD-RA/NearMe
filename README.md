@@ -61,6 +61,12 @@ Register Number :212223040060
 ## OUTPUT
 
 
+![RO](https://github.com/HARIPRASHAAD-RA/NearMe/assets/164654451/55fb874a-57f4-4339-a7d9-8141dee9bde1)
+![an](https://github.com/HARIPRASHAAD-RA/NearMe/assets/164654451/074f295c-2a03-430a-814a-c7d28f32a4b2)
+![Screenshot 2024-04-16 050204](https://github.com/HARIPRASHAAD-RA/NearMe/assets/164654451/9c27c3a1-f6c0-492b-8ed8-4f367d7ff463)
+![an](https://github.com/HARIPRASHAAD-RA/NearMe/assets/164654451/9cfae108-f1a2-4b32-8c66-609d5cf78069)
+![VR](https://github.com/HARIPRASHAAD-RA/NearMe/assets/164654451/42df2c86-1fc1-4f26-bcaa-736348b8e679)
+![so](https://github.com/HARIPRASHAAD-RA/NearMe/assets/164654451/08dde9c5-11ff-4c98-bf5f-6a597acd6c91)
 
 
 
